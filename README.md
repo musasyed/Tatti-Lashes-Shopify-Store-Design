@@ -1,1 +1,3 @@
 # Tatti-Lashes-Shopify-Store-Design
+"Tatti Lashes" is a Shopify store that I designed, specializing in offering high-quality eyelashes for enhancing the beauty of your eyes. The store features a user-friendly interface that makes it easy for customers to browse and purchase products. It offers a range of lashes in different styles and sizes, suitable for various occasions and preferences. The store also provides helpful tips and tutorials for applying lashes, helping customers to achieve a perfect look. With its secure payment options and reliable shipping services, "Tatti Lashes" is a trusted source for purchasing quality eyelashes to enhance your eyes' natural beauty.
+Check Out: https://tattilashes.com/
